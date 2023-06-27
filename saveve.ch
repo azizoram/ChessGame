@@ -1,0 +1,9 @@
+W
+rkbqcbkr
+pppppppp
+eeeeeeee
+eeeeeeee
+eeeeeeee
+eeeeeeee
+PPPPPPPP
+RKBQCBKR
